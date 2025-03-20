@@ -1,6 +1,6 @@
 # professionellerLebenslauf
 
-Ich bin Jovanka Schauder und befinde mich in der Umschulung zur Fachinformatikerin in der Anwendungsentwicklung, die ich im Mai abschließen werde. 
+Ich bin Jovanka Schauder und befinde mich in der Umschulung zur Fachinformatikerin in der Anwendungsentwicklung, die ich im Mai 2025 abschließen werde. 
 
 Zuvor habe ich als IT-Systemkauffrau gearbeitet. Nach einer längeren Elternzeit habe ich mich intensiv weitergebildet und wertvolle Erfahrungen im Ehrenamt gesammelt.
 
